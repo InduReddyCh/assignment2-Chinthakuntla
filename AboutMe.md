@@ -21,5 +21,6 @@ The table below describes the food and food availability location and the cost o
 
 >“Anyone can find the dirt in someone. Be the one that finds the gold.”
                                                 ― *Gaur Gopal Das
+                                                
 >“Live your life in such a way that those who know you but don’t know God, will come to know God because they know you.”
                                                 ― *Gaur Gopal Das
