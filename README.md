@@ -8,5 +8,9 @@ The **Maldives**, a collection of more than a thousand islands in the Indian Oce
 2. Kansas city to Maldives
 3. Reached to final destination Maldives.
     1. Need to book cab from Maldives airport to beach.
-
+###### List of Items
+* Mobile
+* Checkin Bag
+    * Ball
+    
         
